@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **ReactJs**
 
-- 📫 How to reach me **shivankamwar@gmail.com**
+- 📫 How to reach me **ssankamwar@gmail.com**
 
 - 📄 Know about my experiences https://drive.google.com/file/d/13xhQzzR97W9gHKG5YOKCQ1QebCR4uqIN/view?usp=drive_link.
 
