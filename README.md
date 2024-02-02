@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **shivankamwar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Ne-Am6cQbjY_S4Si0s8yIzdXFN7kr_au/view?usp=drive_link](https://drive.google.com/file/d/1Ne-Am6cQbjY_S4Si0s8yIzdXFN7kr_au/view?usp=drive_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/13xhQzzR97W9gHKG5YOKCQ1QebCR4uqIN/view?usp=drive_link.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
